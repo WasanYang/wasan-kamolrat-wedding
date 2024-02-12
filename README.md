@@ -1,1 +1,0 @@
-# wasan-kamolrat-wedding
